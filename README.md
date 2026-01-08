@@ -10,6 +10,6 @@ Most of the time, I observe other players or sittin' with my closest friends in 
 
 
 My favs characters:
-Melly Plinius ; Vriska Serket ; Whisper the Wolf.
+Melly Plinius ; Vriska Serket ; Whisper the Wolf ; Futaba Sakura.
 
 ![tenor](https://github.com/user-attachments/assets/5ee6c9ad-cd31-42ca-9f23-6e01c30ba958)
