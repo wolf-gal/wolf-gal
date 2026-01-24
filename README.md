@@ -8,6 +8,6 @@ Most of the time, I observe other players or sittin with my closest friends.
 
 
 My favs characters:
-Melly Plinius (IDV), Qi Xi (IDV) ; Vriska Serket (HS) ; Whisper the Wolf (STH* IDW), Trip the Sungazer (STH) ; Futaba Sakura (P5) ; Zooble (TADC).
+Melly Plinius (IDV), Qi Xi (IDV) ; Vriska Serket (HS), Rose Lalonde (HS) ; Whisper the Wolf (STH* IDW), Trip the Sungazer (STH) ; Futaba Sakura (P5) ; Zooble (TADC).
 
 ![tenor](https://github.com/user-attachments/assets/0e9ed517-3768-4183-aa63-f693a40a74a5)
