@@ -8,6 +8,6 @@ Most of the time, just observe other players or sittin with my closest friends..
 
 
 My favs characters:
-Melly Plinius (IDV), Qi Xi (IDV) ; Kanaya Maryam (HS) ; Whisper the Wolf (STH* IDW), Blaze the Cat (STH), Trip the Sungazer (STH) ; Lapis Lazuli (SU) ; Zooble (TADC).
+Melly Plinius (IDV), Qi Xi (IDV) ; Kanaya Maryam (HS) ; Whisper the Wolf (STH* IDW), Blaze the Cat (STH), Rouge the Bat (STH) ; Lapis Lazuli (SU) ; Zooble (TADC).
 
 ![tenor](https://github.com/user-attachments/assets/0e9ed517-3768-4183-aa63-f693a40a74a5)
