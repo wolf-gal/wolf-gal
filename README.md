@@ -8,6 +8,6 @@ I rlly love scary-n-spooky things. Whether it's video reviews of abandoned build
 
 
 My favs characters:
-Melly Plinius (IDV), Yidhra (IDV), Qi Xi (IDV) ; Anna (DBD), Caleb Quinn (DBD), Amanda Young (DBD* The SAW) ; Vriska Serket (HS) ; Whisper the Wolf (STH* IDW) ; Lapis Lazuli (SU) ; Zooble (TADC) ; Makoto Niijima (P5) ; Painwheel (SG).
+Melly Plinius (IDV), Yidhra (IDV), Qi Xi (IDV) ; Anna (DBD), Caleb Quinn (DBD), Amanda Young (DBD* The SAW) ; Kate the Chaser (SLENDERVERSE* CREEPYPASTA) ; Vriska Serket (HS) ; Whisper the Wolf (STH* IDW) ; Lapis Lazuli (SU) ; Zooble (TADC) ; Makoto Niijima (P5) ; Painwheel (SG).
 
 ![tenor](https://github.com/user-attachments/assets/0e9ed517-3768-4183-aa63-f693a40a74a5)
