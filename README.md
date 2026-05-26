@@ -1,4 +1,4 @@
-I have trust issues. Find it difficult to communicate and try to make friends with anyone. So, please keep this in mind.
+I have trust issues. Find it difficult to communicate and try to make friends with anyone.
 
 I love spooky things. Whether it's video reviews of abandoned buildings, creepypasta stuff and etc., up to games\series\movies and so on. And I like surreal stuff. For this reason, I like dreamcore\weirdcore 'n certain games that resemble it, such as: ENA: Dream BBQ, Psychopomp, Hylics...
 
@@ -8,6 +8,6 @@ I love spooky things. Whether it's video reviews of abandoned buildings, creepyp
 
 
 My favs characters:
-Melly Plinius (IDV), Yidhra (IDV), Qi Xi (IDV) ; Anna (DBD), Caleb Quinn (DBD), Amanda Young (DBD* The SAW) ; Kate the Chaser (SLENDERVERSE* CREEPYPASTA) ; Vriska Serket (HS) ; Whisper the Wolf (STH* IDW) ; Lapis Lazuli (SU) ; Zooble (TADC) ; Makoto Niijima (P5) ; Painwheel (SG) ; Marie (SPLATOON), Shiver (SPLATOON3) ; Ibuki Mioda (DANGANRONPA2).
+Melly Plinius (IDV), Yidhra (IDV), Qi Xi (IDV) ; Anna (DBD), Caleb Quinn (DBD), Amanda Young (DBD* The SAW) ; Kate the Chaser (SLENDERVERSE* CREEPYPASTA) ; Vriska Serket (HS) ; Whisper the Wolf (STH* IDW) ; Lapis Lazuli (SU) ; Zooble (TADC) ; Makoto Niijima (P5), Futaba Sakura (P5) ; Ibuki Mioda (DANGANRONPA2) ; Painwheel (SG) ; Marie (SPLATOON), Shiver (SPLATOON3).
 
 ![tenor](https://github.com/user-attachments/assets/0e9ed517-3768-4183-aa63-f693a40a74a5)
