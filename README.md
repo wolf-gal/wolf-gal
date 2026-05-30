@@ -8,6 +8,6 @@ I love spooky things. Whether it's video reviews of abandoned buildings, creepyp
 
 
 My favs characters:
-Melly Plinius (IDV), Yidhra (IDV), Qi Xi (IDV) ; Anna (DBD), Caleb Quinn (DBD), Amanda Young (DBD* The SAW) ; Kate the Chaser (SLENDERVERSE* CREEPYPASTA) ; Vriska Serket (HS) ; Whisper the Wolf (STH* IDW) ; Lapis Lazuli (SU) ; Zooble (TADC) ; Makoto Niijima (P5), Futaba Sakura (P5) ; Ibuki Mioda (DR2) ; Painwheel (SG) ; Marie (SPLATOON), Shiver (SPLATOON3).
+Melly Plinius (IDV), Yidhra (IDV), Qi Xi (IDV) ; Anna (DBD), Caleb Quinn (DBD), Amanda Young (DBD* The SAW) ; Kate the Chaser (SLENDERVERSE* CREEPYPASTA), Jane Everlasting\the killer (CREEPYPASTA) ; Vriska Serket (HS) ; Whisper the Wolf (STH* IDW) ; Zooble (TADC) ; Makoto Niijima (P5), Futaba Sakura (P5) ; Ibuki Mioda (DR2) ; Painwheel (SG) ; Marie (SPLATOON), Shiver (SPLATOON3).
 
 ![tenor](https://github.com/user-attachments/assets/0e9ed517-3768-4183-aa63-f693a40a74a5)
