@@ -1,4 +1,4 @@
-I love spooky things. Whether it's video reviews of abandoned buildings, creepypasta stuff and etc., up to games\series\movies and so on. And I like surreal stuff.
+I love spooky things. Whether it's video reviews of abandoned buildings, creepypasta stuff and etc., up to games\series\movies and so on.
 
 ![3bd0e3d74ba7270a94b3e8d3155ad3d1](https://github.com/user-attachments/assets/f8f24c0c-8200-4397-a4ea-dc4f148fd066)
 
