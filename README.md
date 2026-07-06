@@ -6,7 +6,9 @@
 
 
 
-My favs characters:
-Melly Plinius (IDV), Yidhra (IDV), Qi Xi (IDV) ; Anna (DBD), Caleb Quinn (DBD), Amanda Young (DBD* The SAW) ; Kate the Chaser (SLENDERVERSE* CREEPYPASTA) ; Vriska Serket (HS) ; Whisper the Wolf (STH* IDW) ; Makoto Niijima (P5), Futaba Sakura (P5) ; Painwheel (SG) ; Marina (SPLATOON2), Shiver (SPLATOON3).
+ɪ ᴋɴᴏᴡ ᴀ ʟᴏᴛ ᴏꜰ ꜰᴀɴᴅᴏᴍs, ʙᴜᴛ ɪ'ʟʟ ʟɪsᴛ ᴛʜᴇ ᴏɴᴇs ɪ'ᴍ ᴀᴄᴛɪᴠᴇʟʏ ɪɴ:
+ɪᴅᴠ ; ᴅʙᴅ ; sᴋᴜʟʟɢɪʀʟs ; ʜᴏᴛʟɪɴᴇ ᴍɪᴀᴍɪ ; ʏᴜᴘᴘɪᴇ ᴘsʏᴄʜᴏ ; ᴘsʏᴄʜᴏᴘᴏᴍᴘ ; ʙᴀᴛɪᴍ\ʙᴀᴛᴅʀ ; sᴛʜ ; ɴɪᴛᴡ.
 
-![tenor](https://github.com/user-attachments/assets/0e9ed517-3768-4183-aa63-f693a40a74a5)
+ɪ ᴡᴀᴛᴄʜᴇᴅ: ᴍᴏʀᴀʟ ᴏʀᴇʟ ; ʙᴏᴊᴀᴄᴋ ʜᴏʀsᴇᴍᴀɴ ; sᴀᴡ(2003-2023) ; ᴀʟɪᴇɴ(1979) ; ᴘᴀᴘʀɪᴋᴀ ; ᴘᴇʀꜰᴇᴄᴛ ʙʟᴜᴇ ; sᴏᴜᴛʜ ᴘᴀʀᴋ ; ᴀᴍᴇʀɪᴄᴀɴ ᴘsʏᴄʜᴏ ; ʙᴀᴄᴋʀᴏᴏᴍs ; ᴛᴇxᴀs ᴄʜᴀɪɴsᴀᴡ ᴍᴀssᴀᴄʀᴇ (1974) ; ᴜʀʙᴀɴ sᴘᴏᴏᴋ ; ᴛʜᴇ ᴍᴀɴᴅᴇʟᴀ ᴄᴀᴛᴀʟᴏɢᴜᴇ ; ʜᴇʟʟʀᴀɪsᴇʀ (1987) ; ᴘᴇᴀʀʟ (2022) ; ᴋɪʟʟʙɪʟʟ (2003) ; ɪɴᴅɪᴀɴᴀ ᴊᴏɴᴇs(1981) ; ʜᴀᴘᴘʏ ᴛʀᴇᴇ ꜰʀɪᴇɴᴅs ; ᴛᴇʀʀɪꜰɪᴇʀ(2016).
+
+![tenor](https://i.pinimg.com/originals/15/38/08/153808b06898b5a0ea1c4ef3c7b75d03.gif)
