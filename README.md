@@ -1,4 +1,4 @@
-![3bd0e3d74ba7270a94b3e8d3155ad3d1](https://convertico.com/gif-resizer/processed/gif_1784832418_8873_resized.gif)
+![3bd0e3d74ba7270a94b3e8d3155ad3d1](https://convertico.com/gif-resizer/processed/gif_1786447407_5495_resized.gif)
 
 ⚠ʜᴇʟʟᴏ. ɴᴀᴍᴇ's ɢᴇʀᴛʀᴜᴅᴇ. ɪ'ᴍ ᴀ ʙɪɢ ꜰᴀɴ ᴏꜰ ᴄʀᴇᴇᴘʏ sᴛᴜꜰꜰ. ᴀɴᴅ ʜᴏʀʀᴏʀs\ᴇᴛᴄ. sʟᴀsʜᴇʀs, ᴄʀᴇᴇᴘʏᴘᴀsᴛᴀs ᴀɴᴅ sᴄᴘ. ɪ’ᴍ ᴀʟsᴏ ɪɴᴛᴏ ᴛʀᴜᴇ ᴄʀɪᴍᴇ. ʙᴜᴛ ᴊᴜsᴛ ᴛᴏ ʙᴇ ᴄʟᴇᴀʀ, ᴛʜᴀᴛ ᴅᴏᴇsɴ’ᴛ ᴍᴇᴀɴ ɪ ʜᴀᴠᴇ ᴀɴʏ ʀᴇsᴘᴇᴄᴛ ꜰᴏʀ ᴘᴘʟ ᴡʜᴏ ᴄᴏᴍᴍɪᴛ ᴠɪᴏʟᴇɴᴛ ᴄʀɪᴍᴇs ᴀɴᴅ ᴛᴀᴋᴇ ɪɴɴᴏᴄᴇɴᴛ ʟɪᴠᴇs. 
 
@@ -18,4 +18,4 @@
 
 ![3bd0e3d74ba7270a94b3e8d3155ad3d1](https://i.pinimg.com/originals/6d/07/0c/6d070c6dea1fc4550ac938beabbfa5ed.gif)
 
-![3bd0e3d74ba7270a94b3e8d3155ad3d1](https://convertico.com/gif-resizer/processed/gif_1785432594_5070_resized.gif)
+![3bd0e3d74ba7270a94b3e8d3155ad3d1](https://convertico.com/gif-resizer/processed/gif_1786447978_9286_resized.gif)
