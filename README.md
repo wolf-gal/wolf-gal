@@ -1,4 +1,4 @@
-![3bd0e3d74ba7270a94b3e8d3155ad3d1](https://convertico.com/gif-resizer/processed/gif_1787329018_1637_resized.gif)
+![3bd0e3d74ba7270a94b3e8d3155ad3d1](https://convertico.com/gif-resizer/processed/gif_1789333812_7933_resized.gif)
 
 ⚠ʜᴇʟʟᴏ. ɴᴀᴍᴇ's ɢᴇʀᴛʀᴜᴅᴇ. ɪ'ᴍ ᴀ ʙɪɢ ꜰᴀɴ ᴏꜰ ᴄʀᴇᴇᴘʏ sᴛᴜꜰꜰ. ᴀɴᴅ ʜᴏʀʀᴏʀs\ᴇᴛᴄ. sʟᴀsʜᴇʀs, ᴄʀᴇᴇᴘʏᴘᴀsᴛᴀs ᴀɴᴅ sᴄᴘ. ɪ’ᴍ ᴀʟsᴏ ɪɴᴛᴏ ᴛʀᴜᴇ ᴄʀɪᴍᴇ. ʙᴜᴛ ᴊᴜsᴛ ᴛᴏ ʙᴇ ᴄʟᴇᴀʀ, ᴛʜᴀᴛ ᴅᴏᴇsɴ’ᴛ ᴍᴇᴀɴ ɪ ʜᴀᴠᴇ ᴀɴʏ ʀᴇsᴘᴇᴄᴛ ꜰᴏʀ ᴘᴘʟ ᴡʜᴏ ᴄᴏᴍᴍɪᴛ ᴠɪᴏʟᴇɴᴛ ᴄʀɪᴍᴇs ᴀɴᴅ ᴛᴀᴋᴇ ɪɴɴᴏᴄᴇɴᴛ ʟɪᴠᴇs. 
 
